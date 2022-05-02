@@ -1,2 +1,2 @@
-# sahabzee
-Computer consult LT
+# globalunit24
+Blogspot
